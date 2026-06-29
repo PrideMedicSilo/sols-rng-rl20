@@ -1,4 +1,4 @@
-
+Experience sol's rng like never before with sol's rng Script new, the #1 Script. Includes instant win and no cooldown for unbeatable performance.
 
 
 
